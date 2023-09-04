@@ -1,4 +1,3 @@
+![image](https://github.com/Dalinaqiu/dalinaqiu/assets/15327743/646dd041-36ef-494f-b105-38faf5db395d)
 
-
-<img width="338" alt="image" src="https://github.com/Dalinaqiu/dalinaqiu/assets/15327743/a75402b4-a2cf-4230-9985-228ba769226f">
-
+The world is in tatters, but there are always people who are mending it.
