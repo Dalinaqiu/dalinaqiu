@@ -1,6 +1,7 @@
 ### Hi there 👋
 
-Here are some ideas to get you started:
+![image](https://github.com/Dalinaqiu/dalinaqiu/assets/15327743/a0cfaec1-9dcf-4f78-8f72-ba3801bc2cc2)
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
