@@ -1,6 +1,7 @@
 ### Hi there 👋
 
-![image](https://github.com/Dalinaqiu/dalinaqiu/assets/15327743/a0cfaec1-9dcf-4f78-8f72-ba3801bc2cc2)
+<img width="338" alt="image" src="https://github.com/Dalinaqiu/dalinaqiu/assets/15327743/a75402b4-a2cf-4230-9985-228ba769226f">
+
 
 
 - 🔭 I’m currently working on ...
